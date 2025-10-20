@@ -1,5 +1,5 @@
 # 💫 About Me:
-Heya, I a Moksh (aka meouie).<br><br>CSE Undergrad at IET DAVV, Indore
+Heya, I am Moksh (aka meouie).<br><br>CSE Undergrad at IET DAVV, Indore
 
 
 ## 🌐 Socials:
